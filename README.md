@@ -10,7 +10,7 @@ I like to create startups.
 
 💬 Ask me about anything you want :)
 
-📫 How to reach me - otabek.bro2009@gmail.com
+📫 How to reach me - yahyosafarov21@gmail.com
 
 😄 Pronouns - he/him
 
